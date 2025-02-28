@@ -10,3 +10,7 @@ Pedalea a ritmo moderado durante 2 minutos.
 Acelera al máximo esfuerzo por 30 segundos.
 Vuelve a ritmo moderado por 1 minuto.
 Repite el ciclo 6-8 veces.
+Consejos y precauciones:
+Ajusta la altura del sillín correctamente.
+Mantén una postura relajada.
+Hidrátate bien.
