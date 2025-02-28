@@ -10,3 +10,7 @@ Mantén el cuerpo alineado y en posición horizontal.
 Alterna el movimiento de los brazos en el agua.
 Gira la cabeza de lado para respirar.
 Patea suavemente con las piernas para avanzar.
+Consejos y precauciones:
+Mantén la cabeza relajada.
+No contengas la respiración.
+Usa gafas de natación para mayor comodidad.
