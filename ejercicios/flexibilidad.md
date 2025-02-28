@@ -1,0 +1,1 @@
+Estiramiento de cuadriceps
