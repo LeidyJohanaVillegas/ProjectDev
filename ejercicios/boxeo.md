@@ -10,3 +10,7 @@ Adopta una postura de guardia con los pies separados.
 Extiende el brazo delantero en línea recta.
 Gira ligeramente el torso al lanzar el golpe.
 Vuelve rápido a la posición inicial.
+Consejos y precauciones:
+Mantén la otra mano protegiendo la cara.
+No bloquees los codos al extender el brazo.
+Practica el movimiento con control antes de aumentar velocidad.
