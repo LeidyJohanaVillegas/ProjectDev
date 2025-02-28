@@ -12,3 +12,7 @@ Extiende las piernas hacia atrás en posición de plancha.
 Realiza una flexión de brazos (opcional).
 Vuelve a la posición inicial con un salto.
 Repite de 10 a 15 veces.
+Consejos y precauciones:
+Realiza el movimiento con control.
+Evita arquear la espalda en la plancha.
+Modifica el ejercicio si es necesario.
