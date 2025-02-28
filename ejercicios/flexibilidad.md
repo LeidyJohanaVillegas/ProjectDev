@@ -5,3 +5,7 @@ Beneficios:
 Aumenta la flexibilidad de los músculos del muslo
 Previene lesiones
 Mejora la circulación.
+Instrucciones:
+Ponte de pie y sostén un pie detrás de ti con la mano del mismo lado.
+Tira suavemente del pie hacia los glúteos manteniendo la espalda recta.
+Mantén la posición por 20-30 segundos y cambia de pierna.
